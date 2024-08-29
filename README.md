@@ -1,5 +1,5 @@
 ## **Hi there! I'm Beyza 👋**
-![wp9076735-bioinformatics-wallpapers](https://github.com/user-attachments/assets/91feccb7-01f1-4660-9559-e89a9a2ade3d)
+![22](https://github.com/user-attachments/assets/1331cd0d-c15a-414f-a3a5-2891bbd8ae17)
 
 ### **About me**
 <p align="justify">
